@@ -1,2 +1,0 @@
-# activities-tabaco
-activities tabaco
